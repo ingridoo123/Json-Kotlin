@@ -1,0 +1,1 @@
+Rozwiązanie zadanie rekrutacyjne AKAI
